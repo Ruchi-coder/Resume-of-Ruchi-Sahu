@@ -1,2 +1,2 @@
-# Resume-of-Ruchi-Sahu
+# Ruchi-Sahu
 My latest Resume
